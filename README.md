@@ -1,5 +1,5 @@
 👤 Who I am:
-Good morning to the University of Glasgow. My name is Mohamed Malaz Mujarkish.
+Good morning to the University of Glasgow. My name is Mohamed Malaz Mujarkish, I come from a country named Syria and I come from its capital damascus the oldest capital in the world.
 
 I think differently than most people my age. For 9 years I was bullied and it was a difficult time but I am actually glad it happened. If it didn't happen I would never be the person I am now. It made me who I am but it is also a curse because nobody acts or thinks like me and it can feel isolating when you see things others don't.
 
